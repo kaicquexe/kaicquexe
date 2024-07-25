@@ -1,6 +1,8 @@
 ## • Olá! Eu sou o Kaicque Gomes 👋🏽
 
-#### • Atualmente cursando Análise e Desenvolvimento de Sistemas 🖥️
+#### • Curso de Análise e Desenvolvimento de Sistemas - Concluido 🖥️
+
+### •Atualmente cursando superior em Análise e Desenvolvimento de Sistemas 🖥️
 
 #### • Procuro me encontrando na área 👨🏽‍💻
 

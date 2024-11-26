@@ -6,7 +6,7 @@
 
 #### • Procuro me encontrando na área 👨🏽‍💻
 
-## Tecnologias que tenho conhecimento básico
+## Tecnologias que tenho conhecimento 
 
 <div style="display: inline_block">
   </br> 
